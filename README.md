@@ -22,4 +22,4 @@ https://youtu.be/xM6YIEe_smQ
 
 ## Crèdits
 
-[Xeito Fole](https://nontenxeito.net/portfolio/ego-2/) + Andrea Olmedo Río + [Roger Olivella](http://bifur.cat
+[Xeito Fole](https://nontenxeito.net/portfolio/ego-2/) + Andrea Olmedo Río + [Roger Olivella](http://bifur.cat)
